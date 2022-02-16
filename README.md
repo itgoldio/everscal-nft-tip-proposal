@@ -1,0 +1,1 @@
+# everscal-nft-tip-proposal
